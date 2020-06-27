@@ -1,0 +1,1 @@
+# somegoro-gen.github.io
